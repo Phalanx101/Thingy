@@ -1,9 +1,1 @@
-# Thingy
-
-bro bro bro 
-
-
-
-
-
-skibidi toilet bro edging gooning AND jelqing
+edging gooning AND jelqing
